@@ -1,4 +1,4 @@
-oiiii 🌸 sou a Inês :)
+oiiii 🌸 sou a Inês (v2) :)
 <!--
 **mipgit/mipgit** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
